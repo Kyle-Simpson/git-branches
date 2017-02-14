@@ -3,7 +3,7 @@
 These are a few of my favorite things:
 - Overwatch
 - Raindrops on roses
-- Whiskers on raccoons
+- Whiskers on raccoon puppies
 - Bright copper kettles
 - Warm woolen mittens
 - Boxes tied up in string
